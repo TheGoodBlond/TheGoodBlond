@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TheGoodBlond
+- 👀 I’m interested in learning how to use technology to work with video editing in the future
+- 🌱 I’m currently learning how to create simple games
